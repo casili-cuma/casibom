@@ -1,14 +1,14 @@
-#  <a href="https://casíbom768.com/">Casibom.com</a>
+#  <a href="https://casíbom771.com/">Casibom.com</a>
 
-#  <a href="https://casíbom768.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
+#  <a href="https://casíbom771.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
-<a href="https://casíbom768.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/o_V7IJr.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://casíbom768.com/">
+<a href="https://casíbom771.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/o_V7IJr.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://casíbom771.com/">
     <img src="https://r.resimlink.com/o_V7IJr.jpg" />
 </a>
 </a>
